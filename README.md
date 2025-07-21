@@ -7,7 +7,7 @@
 ---
 
 ## 📫 How to reach me:
-- Email: khawarkayani47@example.com *(replace with real email)*
+- Email: khawarkayani47@gmail.com
 - LinkedIn: [Coming Soon]
 - Location: Pakistan 🇵🇰
 
